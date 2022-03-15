@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+* Foundation
+* Foundation and Empire
+* Second Foundation
+* Foundation's Edge
+* Foundation and Earth
+👾
